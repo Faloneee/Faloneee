@@ -1,5 +1,5 @@
-- oii, eu sou @Faloneee, um estudante da ALura 👋
-- Cursando DEV e Robotica 🦾
+- oii, eu sou @Faloneee, um estudante da Alura 👋
+- Cursando DEV e Robotica e cursos do Alura 🦾
 - Seja bem Vindo a este repositorio onde irei compartilhar meus futuros projetos!!!
 
 - ### Você pode entrar em contato comigo 📧
