@@ -12,7 +12,7 @@
 
   00001101124842sp@al.educacao.sp.gov.br
 
-  [Instagram](https://www.instagram.com/nfalonee/)
+  [Instagram Faloneee](https://www.instagram.com/nfalonee/)
 
 !(<img src="https://media1.tenor.com/m/Nrrw7JbW5M4AAAAC/sasuke-uchiha.gif" alt="a cartoon character is leaning on a railing and eating a snack"/>)
 
